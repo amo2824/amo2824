@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @amo2824
+- 👀 I’m interested in cybersecurity, video game development
+- 🌱 I’m currently learning Java, HTML
+- 📫 How to reach me: @amarisovaa on Instagram or @amarisova_ on Twitter
